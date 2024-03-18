@@ -1,3 +1,3 @@
 haha funni
 
-Go check out original author (Fireplays)
+Go check out original author (Fireplayz)
