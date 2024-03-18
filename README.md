@@ -1,3 +1,3 @@
-FNF Doki Doki Takeover Web with gf mode bf sprites.
+haha funni
 
-no i wont stop add gf mode bf sprites to anything i do that is relevent to fnf
+Go check out original author (Fireplays)
